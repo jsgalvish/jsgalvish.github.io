@@ -1,1 +1,0 @@
-# jsgalvish.github.io
